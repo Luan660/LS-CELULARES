@@ -8,8 +8,6 @@
 
 
 
-Aceitamos Todos Cartões de Crédito, Débito e Pix
-
 
 
 

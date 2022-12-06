@@ -12,7 +12,9 @@
 ### **Todos os Celulares a partir de R$ 799,00 Em uma compra à vista o cliente ganha 10% de desconto ex: Em um celular de R$ 1000,00 ele precisa pagar R$ 900,00**
 ### **Mesmo que seja a prestação, parcelamos em até 10 vezes sem juros.**
 
-
+### **WHATSAPP: 41987158449**
+### **INSTAGRAM: LS_CELULARES**
+### **FACEBOOK: LS CELULARES**
 
 
 

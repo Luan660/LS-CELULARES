@@ -8,7 +8,7 @@
 
 SEGUNDA Á SEXTA, DAS 08:00AM ÁS 18:00PM
 
-
+Aceitamos Todos Cartões de Crédito, Débito e Pix
 
 
 
